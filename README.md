@@ -1,0 +1,4 @@
+- 🌱 Oi,eu sou @MarianaLeites🌱
+- ✨ Estou interessada em programação✨
+- 🌱 Tentando aprender programação   🌱
+- 
